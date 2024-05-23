@@ -1,0 +1,1 @@
+# Farkl-G-r-nt-T-rlerinin-G-r-nt-leme-Teknikleri-le-Analizi
